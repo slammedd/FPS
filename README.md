@@ -23,3 +23,12 @@ https://sketchfab.com/3d-models/screws-e2547f32e2da4015b173570a6b394a82
 
 Prison Door by mihai on Sketchfab:
 https://sketchfab.com/3d-models/prison-door-f2427c81852f44cba3ac3e96904e6b4e
+
+Big ol generator by tboiston on Sketchfab:
+https://sketchfab.com/3d-models/big-ol-generator-5bddb9b303ad4c448421aea21a1f6311
+
+Old Industrial Boiler by CatgirlNotLive on Sketchfab:
+https://sketchfab.com/3d-models/old-industrial-boiler-82d77b2f4fe346f3b662929d763f1cdc
+
+Industrial Light by ConhuirParker on Sketchfab:
+https://sketchfab.com/3d-models/industrial-light-0bcbb6f2a3e54b6b8c69e241bbd5bc5f
